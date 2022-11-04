@@ -21,7 +21,7 @@
 About Apex Legends Hacks: Features and Basic Function
 Apex Legends game playing is difficult and very competitive. You are going to be going against millions of players most of them of who have been playing these types of games for years. This means that the playing field is very uneven. Skycheats Apex legends cheats can make the playing field even and, in some instances, quite in your favor. Which Apex legends hacks should you use? Well, we are going to give you six.
 
-**Updated Time 17/05/2022**
+**Updated Time 04/11/2022**
 
 
 ![image](https://user-images.githubusercontent.com/105746452/169057207-8674bb48-274a-4f3c-914c-4506c4c065e6.png)
